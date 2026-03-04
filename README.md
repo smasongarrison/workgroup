@@ -8,7 +8,7 @@ This workgroup brings together WFU faculty and staff interested in integrating A
 
 ## Format
 
-
+jfddfhjkfdjgdkh
 
 
 - **Meetings:** Weekly, in person at Wake Forest University (day/time TBD based on participant availability) or via Zoom for remote attendees
